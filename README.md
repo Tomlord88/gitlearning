@@ -1,1 +1,1 @@
-learuing
+learing new things
